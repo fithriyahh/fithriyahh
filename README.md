@@ -1,3 +1,4 @@
+![image](https://user-images.githubusercontent.com/111743006/188780989-e7965c1c-819a-4a4d-b9bc-60be6a0a1809.png)
 - 👋 Hello guys, my name is Fithriyah
 - 👀 I am an undergraduate student of Gadjah Mada University
 - 🌱 I’m currently learning about geology and science
